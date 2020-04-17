@@ -1,0 +1,1 @@
+![](guardian-of-the-flame-pixel-art-38.gif)
